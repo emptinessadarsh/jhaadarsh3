@@ -1,5 +1,5 @@
 - 👋 Hi, I’am Adarsh Kumar Jha
-- 👀 I’m interested in Coding, bloging, Travelling
+- 👀 I’m interested in Coding, bloging, Travelling , Designing
 - 🌱 I’m currently learning with Google
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me by Email: jhaadarsh3@gmail.com
